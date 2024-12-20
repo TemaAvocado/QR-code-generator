@@ -8,7 +8,7 @@
 
 ### When I improve my programming skills, I will definitely come back and improve this program😉
 
-### Date: 11/29/2024
+### Date: 11.29.2024
 
 ## RU:
 
